@@ -5,5 +5,5 @@
 
 
 
-https://github.com/Deepeshsomani/Access-Team-Studio/assets/167846112/8253da26-5346-41fd-890e-f36cae64dbaf
+https://github.com/Deepeshsomani/Access-Team-Studio/assets/167846112/1cbcf305-1818-43f7-8636-27912532b494
 
